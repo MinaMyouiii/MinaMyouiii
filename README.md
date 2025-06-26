@@ -1,4 +1,3 @@
-## Hi there 👋
 https://github.com/user-attachments/assets/0acc6138-00ea-4e5d-9b60-600e46870bc0
 <!--
 **MinaMyouiii/MinaMyouiii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

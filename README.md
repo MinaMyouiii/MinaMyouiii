@@ -1,4 +1,8 @@
 https://github.com/user-attachments/assets/0acc6138-00ea-4e5d-9b60-600e46870bc0
+
+me when work
+![speechmemified_F-Gaua-WcAAnGJq jpg](https://github.com/user-attachments/assets/57fb9f60-ecaf-4d6e-bf52-0d62f67712c7)
+
 <!--
 **MinaMyouiii/MinaMyouiii** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
